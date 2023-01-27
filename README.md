@@ -13,6 +13,8 @@ For Now:
 
 Play FPA games for/on Fantcy!
 
+The Files named: "Game" is a MOD of W2.
+
 W3 Not added yet...
 
 ----
