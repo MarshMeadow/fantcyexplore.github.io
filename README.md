@@ -26,4 +26,4 @@ They also, helped a lot with the making of my site [Fantcy](https://sites.google
 
 NOTE THAT: COwOkies is ok with me having and uploading these files, you can ask to make sure...
 
-![image](https://user-images.githubusercontent.com/88599122/215079647-5bc60f34-0b86-4854-8cb7-6c68e0e213ae.png)
+![image](https://user-images.githubusercontent.com/88599122/215079883-5c9c9644-0274-44da-b0dd-afebe066cc9d.png)
